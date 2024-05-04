@@ -16,5 +16,9 @@
             Also can you please send to me payment's Screenshots  to my email oswaldonoppervox51@gmail.com ?
             thanks
 
+            Or please contact me via telegram and send screenshots directly
+            https://t.me/devStar365
+            
+
            
 
