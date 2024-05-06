@@ -6,8 +6,6 @@
             0x668B227939CFeEd2e64d378b71406B3e68B22bef            
             0x668B227939CFeEd2e64d378b71406B3e68B22bef
 
-            please contact me via telegram directly
-            https://t.me/devStar365
             
 
            
